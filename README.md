@@ -3,6 +3,6 @@
 ##### 🎵 Music Addict
 ##### 📱 Love To hear From Any Time
 
-**Open To Projects**
+**Open For Projects**
 
 [Website](https://justhosam.me), [Instagram](https://www.instagram.com/justhosam.me/), [Twitter](https://twitter.com/Hosam1Sword)
